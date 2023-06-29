@@ -1,1 +1,1 @@
-My first readme
+Love is beautiful
